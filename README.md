@@ -1,0 +1,1 @@
+# Diamonds-o-star-sign.
